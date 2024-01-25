@@ -1,0 +1,3 @@
+Hardworking
+Dedicated
+Helpful
